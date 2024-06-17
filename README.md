@@ -7,4 +7,4 @@ Meu nome é Ana Julia de Oliveira Alves
 
 # Você pode entrar em contato comigo 📫
 • 00001123665278sp@al.educacao.sp.gov.br
-• @anajualvs_
+• @_anajualvs
